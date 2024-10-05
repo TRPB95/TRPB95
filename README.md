@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TRPB95
-- 👀 I’m interested in Windows Mockups
+- 🔨 I am a master of Hammer Mapping
 - 🖌️ Programs: Paint.net & Steam, Firefox, and other stuffs
 - 🎮 Favorite Games: Portal 2, Portal Revolution, and other games
 - 😄 Pronouns: He/Him
